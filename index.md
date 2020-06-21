@@ -5,3 +5,4 @@ Han Solo ist ein Weltraumabenteurer, welcher sich den Rebellen im Kampf gegen de
 * Schiesst schnell
 * Kann mit schwierigen Situationen umgehen
 * Liebt Prinzessinnen (eigentlich nur eine)
+> Chewy !!!!!
