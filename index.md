@@ -6,3 +6,5 @@ Han Solo ist ein Weltraumabenteurer, welcher sich den Rebellen im Kampf gegen de
 * Kann mit schwierigen Situationen umgehen
 * Liebt Prinzessinnen (eigentlich nur eine)
 > Chewy !!!!!
+<img src="https://thumbs.dreamstime.com/z/star-wars-han-solo-collection-royal-mail-stamps-characters-movie-center-61267243.jpg">
+
